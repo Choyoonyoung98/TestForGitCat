@@ -10,8 +10,7 @@ as
 ㄹㅊㅌㅎㄹ
 asdassfas
 ㄷㄴ
-asdas
-sdasdadsasdhghjg
+asdasgggsdasdadsasdhghjg
 jbj
 asda
 ㅁㄴㅇㅁㄴㅇ
